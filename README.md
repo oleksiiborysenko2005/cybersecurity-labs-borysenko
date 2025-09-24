@@ -1,1 +1,0 @@
-# cybersecurity-labs-borysenko
